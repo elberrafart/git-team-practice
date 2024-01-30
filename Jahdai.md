@@ -1,4 +1,4 @@
-![Karen Walker](https://www.google.com/imgres?imgurl%253Dhttps%253A%252F%252Ftvline.com%252Fwp-content%252Fuploads%252F2017%252F09%252Fwill-grace-revival-premiere-karen.jpg%2526tbnid%253DEIm3CCr6iSMFWM%2526vet%253D12ahUKEwiv4N-SsYWEAxXNMmIAHbeUCkoQMygCegQIARB1..i%2526imgrefurl%253Dhttps%253A%252F%252Ftvline.com%252Fcasting-news%252Fmegan-mullally-leaving-will-and-grace-karen-missing-season-11-1117013%252F%2526docid%253D7IfENfMw3U0HzM%2526w%253D620%2526h%253D420%2526q%253Dkaren%2520will%2520and%2520grace%2526ved%253D2ahUKEwiv4N-SsYWEAxXNMmIAHbeUCkoQMygCegQIARB1)
+![Karen Walker](https://miro.medium.com/v2/resize:fit:1400/format:webp/1*KPG0h3uG2tAIQWaYAOH4qw.jpeg)
 
 Karen Walker:
 - "a spoiled, shrill, gold-digging socialite who would sooner chew off her own foot than do an honest day's work."
